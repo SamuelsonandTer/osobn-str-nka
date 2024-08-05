@@ -1,0 +1,1 @@
+# osobn-str-nka
